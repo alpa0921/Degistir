@@ -1,0 +1,2 @@
+# Degistir
+just an idea
